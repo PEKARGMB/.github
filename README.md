@@ -4,4 +4,4 @@
 
 **Contact person:** @MichalBelkaCZ
 
-![Logo GJP]](http://www.pekargmb.cz/obr/logoskola-kruh.png)http://www.pekargmb.cz/obr/logoskola-kruh.png)
+![Logo GJP]](http://www.pekargmb.cz/obr/logoskola-kruh.png)
